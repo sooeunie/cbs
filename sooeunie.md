@@ -4,4 +4,6 @@
 - Prepare hot pan
 - Cook pancake
 - Place on plate
-- Pour maple syrup
+- Pour maple syrup 
+- Also add sugar
+- and maybe some jelly too 
